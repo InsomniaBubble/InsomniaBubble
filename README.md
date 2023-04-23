@@ -1,8 +1,8 @@
 ### Hello
 
-Maybe you are somepony who comes from [小马宝莉吧](https://tieba.baidu.com/f?kw=%E5%B0%8F%E9%A9%AC%E5%AE%9D%E8%8E%89)?
+Maybe you are somepony from [小马宝莉吧](https://tieba.baidu.com/f?kw=%E5%B0%8F%E9%A9%AC%E5%AE%9D%E8%8E%89)?
 
-This account belongs to a user who also loves MLP, and he/she is planning to develop something funny in the near future...
+The owner of this account also loves MLP, and he/she is planning to develop something funny in the near future...
 
 Wait for it.
 
